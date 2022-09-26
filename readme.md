@@ -12,7 +12,7 @@ kolko kamenov mnisi prekladaju...
 
 Nas tim tvoria clenovia:
 
-1. Filip Piták
+1. Filip Pitak
 2. 
 3. 
 4. 
