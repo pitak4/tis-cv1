@@ -15,4 +15,4 @@ Nas tim tvoria clenovia:
 1. Filip Piták
 2. Timotea Chalupová
 3. Pavol Repiský
-4.
+4. Lenka Cakurdova
